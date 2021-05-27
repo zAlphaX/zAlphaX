@@ -1,6 +1,8 @@
 ╔═══════════════════════════════════════════════════════════════════════════════════════
- ➩ ヅ Hii, Sr. √ zAlphaX™ ♂
- ➩ ♛ ☞  • I am interested in Programming ☞ Design ☞ Simulators (Maintenance) ☞ (Tournament Competition) ☞ Computer Assembly and etc (...) ✌
+ 
+ ➩ ヅ Hii, Sr. √ zAlphaX™ ♂ 🧑
+
+ ➩ ♛ ☞  • I am interested in Programming 😎 ☞ Design 🤳 ☞ Simulators (Maintenance) 💻 ☞ (Tournament Competition) 😁 ☞ Computer Assembly and etc ✨ (...) ✌
 
  ➩ ♫  ☞  • My favorite music genres are Rock, Funk, HipHop, Trap, Pop and Rap
 
