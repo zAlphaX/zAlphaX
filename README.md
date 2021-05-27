@@ -1,4 +1,4 @@
-╔══════════════════════════════════════════════════════════════════════════════════════
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/1/17/Logitech_logo.svg/1920px-Logitech_logo.svg.png" height="25vh">
  
  ➩ ヅ Hii, Sr. √ zAlphaX™ ♂ 🧑
 
